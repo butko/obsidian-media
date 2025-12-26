@@ -1,0 +1,1 @@
+* https://limits.tginfo.me/ru-RU
