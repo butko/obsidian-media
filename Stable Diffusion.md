@@ -1,0 +1,1 @@
+https://wtftime.ru/articles/131270/stable-diffusion-podruzhili-s-rukami-pri-pomoschi-controlnet/
