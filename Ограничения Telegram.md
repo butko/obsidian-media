@@ -1,1 +1,1 @@
-* https://limits.tginfo.me/ru-RU
+* https://limits.tginfo.me/ru-RU - https://web.archive.org/web/20260402032013/https://limits.tginfo.me/ru-RU
